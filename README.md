@@ -2,7 +2,7 @@
 
 - 🌱 I’m currently learning Java,C#,C++  
 - 📫 How to reach me:   
-QQ: 1615115302 or 2515097691   
+QQ: 2515097691   
 Email: tygfhk@outlook.com  
 Discord: mmmjjkx  
 
